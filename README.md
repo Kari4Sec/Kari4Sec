@@ -2,6 +2,6 @@
 - 👀 I’m interested in all things to do with transparency and cybersecurity
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on any and all projects of any scale! Really!
-- 📫 How to reach me - @IkariTech@pm.me
+- 📫 How to reach me - IkariTech@pm.me
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can code!
